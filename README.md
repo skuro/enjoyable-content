@@ -1,11 +1,7 @@
 Enjoyable Content
 =================
 
-> **groov·y**
+> **groov·y** • _/ˈgro͞ovē/_
+> _adj._
 >
-> _/ˈgro͞ovē/_
->
-> Adjective
->
-> *  Fashionable and exciting.
-> * Enjoyable and excellent.
+> Enjoyable and excellent.
